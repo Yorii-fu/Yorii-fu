@@ -1,6 +1,6 @@
 # Yorii-fuu
 
-![](https://komarev.com/ghpvc/?username=Yorii-fuu&style=flat-square)
+![](https://komarev.com/ghpvc/?username=Yorii-fuu&style=for-the-badge)
 
 ![Image](https://github.com/user-attachments/assets/c3f4d3bc-ad4c-461f-96ed-6e338557efff)
 ​🇸​​🇹​​🇦​​🇹​​🇪​ ​🇾​​🇴​​🇺​​🇷​ ​🇧​​🇺​​🇸​​🇮​​🇳​​🇪​​🇸​​🇸​ ​🇭​​🇪​​🇷​​🇪​.
