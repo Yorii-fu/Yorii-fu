@@ -1,7 +1,7 @@
 # Yorii-fuu
 State your business here.
 
-![Image](https://github.com/user-attachments/assets/e03384f0-76b2-4b1a-9c8f-be11719f3b4e)
+![Image](https://github.com/user-attachments/assets/cb58b383-3819-4cc0-8f5c-0e646e0fb57a)
 
 *“History Is Written By The Victor. History Is Filled With Liars. If He Lives, And We Die, His Truth Becomes Written And Ours Is Lost.”*
 
