@@ -6,7 +6,7 @@
 
 *“History Is Written By The Victor. History Is Filled With Liars. If He Lives, And We Die, His Truth Becomes Written And Ours Is Lost.”*
 
-Call me Yor, Rian or Sha. 
+𝙲𝚊𝚕𝚕 𝚖𝚎 𝚈𝚘𝚛, 𝚁𝚒𝚊𝚗, 𝚘𝚛 𝚂𝚑𝚊
 
 DNI darkshippers + any1 in the basic DNI list.
 
