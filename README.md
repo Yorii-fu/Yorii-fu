@@ -9,6 +9,6 @@ Call me Yor, Rian or Sha.
 
 DNI darkshippers + any1 in the basic DNI list.
 
-
+https://gifs.crd.co/assets/images/gallery09/9cced0ce.gif?v=ef433a6f)%3C-
 
 ![Image](https://github.com/user-attachments/assets/8fcc0433-d0d0-4fd7-85cb-70223629e67b)
