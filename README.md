@@ -16,4 +16,9 @@
 
 <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/94200452-0df0-4d70-829b-6f1e7bcbd49d" />   𝙷𝚟𝚢𝚔𝚒𝚗 𝙷𝚢𝚙𝚎𝚛𝚕𝚊𝚜𝚎𝚛, 𝙼𝚊𝚏𝚒𝚘𝚜𝚘, 𝙲𝚑𝚊𝚗𝚌𝚎, 𝙺𝚒𝚢𝚘𝚝𝚎𝚛𝚞 . . .
 
+↪𝙸𝚂𝚃𝙿
+𝙴𝙽𝙶/𝙸𝙽𝙳
+𝙴𝚗𝚐𝚕𝚒𝚜𝚑 𝚒𝚜 𝚗𝚘𝚝 𝚖𝚢 𝚏𝚒𝚛𝚜𝚝 𝚕𝚊𝚗𝚐𝚞𝚊𝚐𝚎 𝚜𝚘 𝚋𝚎𝚠𝚊𝚛𝚎 𝚒𝚏 𝙸 𝚖𝚊𝚢 𝚑𝚊𝚟𝚎 𝚖𝚒𝚜𝚞𝚗𝚍𝚎𝚛𝚜𝚝𝚘𝚘𝚍 𝚢𝚘𝚞𝚛 𝚖𝚎𝚜𝚜𝚊𝚐𝚎.
+
+
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31cpwmjnrox4ndlfrgthtiviib24&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=3865cc&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
