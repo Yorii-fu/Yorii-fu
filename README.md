@@ -1,6 +1,6 @@
 # Yorii-fuu
 ![Image](https://github.com/user-attachments/assets/c3f4d3bc-ad4c-461f-96ed-6e338557efff)
-State your business here.
+​🇸​​🇹​​🇦​​🇹​​🇪​ ​🇾​​🇴​​🇺​​🇷​ ​🇧​​🇺​​🇸​​🇮​​🇳​​🇪​​🇸​​🇸​ ​🇭​​🇪​​🇷​​🇪​.
 
 ![Image](https://github.com/user-attachments/assets/cb58b383-3819-4cc0-8f5c-0e646e0fb57a)
 
