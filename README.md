@@ -11,3 +11,4 @@ DNI darkshippers + any1 in the basic DNI list.
 
 
 
+![Image](https://github.com/user-attachments/assets/8fcc0433-d0d0-4fd7-85cb-70223629e67b)
