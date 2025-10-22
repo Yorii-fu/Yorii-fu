@@ -5,6 +5,7 @@
 <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/6a8aa5cb-9a4b-4d90-a146-03e50a0c2c96" />
 ​🇸​​🇹​​🇦​​🇹​​🇪​ ​🇾​​🇴​​🇺​​🇷​ ​🇧​​🇺​​🇸​​🇮​​🇳​​🇪​​🇸​​🇸​ ​🇭​​🇪​​🇷​​🇪​.
 <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/6a8aa5cb-9a4b-4d90-a146-03e50a0c2c96" />
+
 ![Image](https://github.com/user-attachments/assets/8f6f50d7-08d4-4159-8932-cc41d6c0df78)
 
 *“History Is Written By The Victor. History Is Filled With Liars. If He Lives, And We Die, His Truth Becomes Written And Ours Is Lost.”*
