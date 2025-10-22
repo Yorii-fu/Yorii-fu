@@ -2,8 +2,7 @@
 
 ![](https://komarev.com/ghpvc/?username=Yorii-fuu&style=for-the-badge)
 
-![Image](https://github.com/user-attachments/assets/90649d1c-8994-4911-9a34-d61bf18fd782)
-
+<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/339f73d1-043a-42e5-a57b-7ffe9ff99de3" />
 ​🇸​​🇹​​🇦​​🇹​​🇪​ ​🇾​​🇴​​🇺​​🇷​ ​🇧​​🇺​​🇸​​🇮​​🇳​​🇪​​🇸​​🇸​ ​🇭​​🇪​​🇷​​🇪​.
 <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/6a8aa5cb-9a4b-4d90-a146-03e50a0c2c96" />
 
