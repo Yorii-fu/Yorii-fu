@@ -2,10 +2,10 @@
 
 ![](https://komarev.com/ghpvc/?username=Yorii-fuu&style=for-the-badge)
 
-![Image](https://github.com/user-attachments/assets/8f6f50d7-08d4-4159-8932-cc41d6c0df78)
+<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/6a8aa5cb-9a4b-4d90-a146-03e50a0c2c96" />
 ​🇸​​🇹​​🇦​​🇹​​🇪​ ​🇾​​🇴​​🇺​​🇷​ ​🇧​​🇺​​🇸​​🇮​​🇳​​🇪​​🇸​​🇸​ ​🇭​​🇪​​🇷​​🇪​.
-
-![Image](https://github.com/user-attachments/assets/cb58b383-3819-4cc0-8f5c-0e646e0fb57a)
+<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/6a8aa5cb-9a4b-4d90-a146-03e50a0c2c96" />
+![Image](https://github.com/user-attachments/assets/8f6f50d7-08d4-4159-8932-cc41d6c0df78)
 
 *“History Is Written By The Victor. History Is Filled With Liars. If He Lives, And We Die, His Truth Becomes Written And Ours Is Lost.”*
 
