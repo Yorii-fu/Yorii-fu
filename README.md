@@ -8,7 +8,7 @@
 
 ![Image](https://github.com/user-attachments/assets/8f6f50d7-08d4-4159-8932-cc41d6c0df78)
 
-*“History Is Written By The Victor. History Is Filled With Liars. If He Lives, And We Die, His Truth Becomes Written And Ours Is Lost.”*
+<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/008b6ebc-547a-4ea2-9dfc-e2d15e3894f4" /> *“History Is Written By The Victor. History Is Filled With Liars. If He Lives, And We Die, His Truth Becomes Written And Ours Is Lost.”*
 
 𝙲𝚊𝚕𝚕 𝚖𝚎 𝚈𝚘𝚛, 𝚁𝚒𝚊𝚗, 𝚘𝚛 𝚂𝚑𝚊
 
