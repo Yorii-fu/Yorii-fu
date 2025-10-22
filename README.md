@@ -4,7 +4,7 @@
 
 <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/339f73d1-043a-42e5-a57b-7ffe9ff99de3" />
 ​🇸​​🇹​​🇦​​🇹​​🇪​ ​🇾​​🇴​​🇺​​🇷​ ​🇧​​🇺​​🇸​​🇮​​🇳​​🇪​​🇸​​🇸​ ​🇭​​🇪​​🇷​​🇪​.
-<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/6a8aa5cb-9a4b-4d90-a146-03e50a0c2c96" />
+<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/008b6ebc-547a-4ea2-9dfc-e2d15e3894f4" />
 
 ![Image](https://github.com/user-attachments/assets/8f6f50d7-08d4-4159-8932-cc41d6c0df78)
 
