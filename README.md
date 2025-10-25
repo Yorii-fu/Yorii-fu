@@ -20,6 +20,8 @@
 
 ![Image](https://github.com/user-attachments/assets/a46f93ee-1e1a-4512-916a-77ebff7fa470)
 
+![Image](https://github.com/user-attachments/assets/0529a378-6a7f-45d5-9b5d-3d758b4faca8)
+
 <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/94200452-0df0-4d70-829b-6f1e7bcbd49d" />   𝙷𝚟𝚢𝚔𝚒𝚗 𝙷𝚢𝚙𝚎𝚛𝚕𝚊𝚜𝚎𝚛, 𝙼𝚊𝚏𝚒𝚘𝚜𝚘, 𝙲𝚑𝚊𝚗𝚌𝚎, 𝙺𝚒𝚢𝚘𝚝𝚎𝚛𝚞, 𝙰 𝚋𝚒𝚝 𝚘𝚏 𝚍𝚖𝚌 (𝙳𝚊𝚗𝚝𝚎 𝚂𝚙𝚊𝚛𝚍𝚊).
 
 ![Image](https://github.com/user-attachments/assets/12fc2a4c-1856-48e5-807b-70f67e0839e1)  𝙸𝚂𝚃𝙿
