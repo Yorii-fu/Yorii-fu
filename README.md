@@ -5,7 +5,7 @@
 
 <img width="1000" height="1000" alt="Image" src="https://github.com/user-attachments/assets/f917afe9-3e85-497e-acd7-ccc3dbf54717" />
 
-                                             *“History Is Written By The Victor. History Is Filled With Liars. If He Lives, And We Die, His Truth Becomes Written And Ours Is Lost.”*
+ *“History Is Written By The Victor. History Is Filled With Liars. If He Lives, And We Die, His Truth Becomes Written And Ours Is Lost.”*
                                                                                         　　　𐙚　⁺　　Yori　　‿　　Rian
                                                                                       　𓎢𓎟𓎡　𓈒　She　⋮　He　　𓏵　　ISTP　　ᰔ
                                                                                      　　　　　⸝⸝　IND/CN/ENG　꒱　. ˚
