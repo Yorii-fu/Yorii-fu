@@ -1,5 +1,4 @@
 # Yorii-fuu
-Align="center"
 
 ![](https://komarev.com/ghpvc/?username=Yorii-fuu&style=for-the-badge)
 
