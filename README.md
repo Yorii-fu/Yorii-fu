@@ -7,16 +7,16 @@
 
 <p align="center">
  *“History Is Written By The Victor. History Is Filled With Liars. If He Lives, And We Die, His Truth Becomes Written And Ours Is Lost.”*
- 
+ <p align="center">
 𐙚　⁺　　Yori　　‿　　Rian
-
+<p align="center">
 𓎢𓎟𓎡　𓈒　She　⋮　He　　𓏵　　ISTP　　ᰔ
-
+<p align="center">
 　⸝⸝　IND/CN/ENG　꒱　. ˚
-                                                                                          
+ <p align="center">                                                                                         
 𝙴𝚗𝚐𝚕𝚒𝚜𝚑 𝚒𝚜 𝚗𝚘𝚝 𝚖𝚢 𝚏𝚒𝚛𝚜𝚝 𝚕𝚊𝚗𝚐𝚞𝚊𝚐𝚎 𝚜𝚘 𝚋𝚎𝚠𝚊𝚛𝚎 𝚒𝚏 𝙸 𝚖𝚊𝚢 𝚑𝚊𝚟𝚎 𝚖𝚒𝚜𝚞𝚗𝚍𝚎𝚛𝚜𝚝𝚘𝚘𝚍 𝚢𝚘𝚞𝚛 𝚖𝚎𝚜𝚜𝚊𝚐𝚎.
 
-                                          
+ <p align="center">                                         
  𓏵 𝄞⨾𓍢ִ໋  𝙸'𝚖 𝚊 𝙼𝚞𝚕𝚝𝚒𝚜𝚑𝚒𝚙𝚙𝚎𝚛, 𝙸 𝚍𝚘𝚗𝚝 𝚖𝚒𝚗𝚍 𝚊𝚗𝚢 𝚜𝚑𝚒𝚙𝚜, 𝚜𝚘 𝚏𝚎𝚎𝚕 𝚏𝚛𝚎𝚎 𝚝𝚘 𝚌𝚞𝚍𝚍𝚕𝚎 𝚢𝚔𝚗𝚘𝚠! :DDD
 </p>
 
