@@ -20,4 +20,8 @@
  𓏵 𝄞⨾𓍢ִ໋  𝙸'𝚖 𝚊 𝙼𝚞𝚕𝚝𝚒𝚜𝚑𝚒𝚙𝚙𝚎𝚛, 𝙸 𝚍𝚘𝚗𝚝 𝚖𝚒𝚗𝚍 𝚊𝚗𝚢 𝚜𝚑𝚒𝚙𝚜, 𝚜𝚘 𝚏𝚎𝚎𝚕 𝚏𝚛𝚎𝚎 𝚝𝚘 𝚌𝚞𝚍𝚍𝚕𝚎 𝚢𝚔𝚗𝚘𝚠! :DDD
 </p>
 
+ <p align="center">                                                                                         
+⚠ ɪꜰ ɪ ʜᴀᴘᴘᴇɴ ᴛᴏ ʙᴇ ɪɴᴀᴄᴛɪᴠᴇ ɪɴ ᴘᴛ, ɪ'ᴍ ꜰᴏᴄᴜꜱɪɴɢ ᴏɴ ᴍʏ ꜱᴛᴜᴅɪᴇꜱ ɴ ᴍʏ ᴘᴇʀꜱᴏɴᴀʟ ʟɪꜰᴇ ʜᴀʜᴀ
+ </p>
+
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31cpwmjnrox4ndlfrgthtiviib24&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=3865cc&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
