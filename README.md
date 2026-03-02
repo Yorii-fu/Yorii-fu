@@ -1,6 +1,6 @@
 # Yorii-fuu
 
-![](https://komarev.com/ghpvc/?username=your-github-username&color=blue)
+![](https://komarev.com/ghpvc/?username=Yorii-fu&style=for-the-badge)
 
 
 <img width="1000" height="1000" alt="Image" src="https://github.com/user-attachments/assets/f917afe9-3e85-497e-acd7-ccc3dbf54717" />
