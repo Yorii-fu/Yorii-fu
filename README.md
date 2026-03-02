@@ -3,7 +3,7 @@
 ![](https://komarev.com/ghpvc/?username=Yorii-fu&style=for-the-badge)
 
 
-<img width="1000" height="1000" alt="Image" src="https://github.com/user-attachments/assets/f917afe9-3e85-497e-acd7-ccc3dbf54717" />
+<img width="1000" height="1000" alt="Image" src="[https://github.com/user-attachments/assets/f917afe9-3e85-497e-acd7-ccc3dbf54717" ](https://files.catbox.moe/ga894l.png)/>
 
 <p align="center">
  *“History Is Written By The Victor. History Is Filled With Liars. If He Lives, And We Die, His Truth Becomes Written And Ours Is Lost.”*
