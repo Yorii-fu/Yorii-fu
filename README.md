@@ -4,7 +4,7 @@
 
 
 <p align="center">
-<img width="1500" height="500" alt="Image" src=https://github.com/user-attachments/assets/2332fb9c-0a0f-44ff-a35b-710c684c3fd6>
+<img width="1000" height="500" alt="Image" src=https://github.com/user-attachments/assets/2332fb9c-0a0f-44ff-a35b-710c684c3fd6>
 
 <p align = "center">
 · · ──────────────────────────────────── ·‿̩͙‿ ༺ ♰ ༻ ‿̩͙‿· ────────────────────────────────── · ·
