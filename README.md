@@ -21,4 +21,5 @@
 <p align = "center">
 {𝙸 𝚝𝚢𝚙𝚎 𝚚𝚞𝚒𝚌𝚔𝚕𝚢 𝚜𝚘 𝚎𝚡𝚙𝚎𝚌𝚝 𝚝𝚘𝚗𝚜 𝚘𝚏 𝚝𝚢𝚙𝚘𝚜 𝚑𝚊𝚑𝚊}
 
+
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31cpwmjnrox4ndlfrgthtiviib24&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=3865cc&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
