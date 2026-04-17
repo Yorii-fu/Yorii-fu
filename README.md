@@ -1,5 +1,3 @@
-# Yorii-fuu
-
 ![](https://komarev.com/ghpvc/?username=Yorii-fu&style=for-the-badge)
 
 
