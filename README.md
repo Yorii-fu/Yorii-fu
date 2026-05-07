@@ -1,6 +1,4 @@
-<p align="center">
-<img width="1000" height="800" alt="Image" src="https://github.com/user-attachments/assets/42e04a13-dee7-4f60-920b-7f0a0bf1ffd9" />
-  
+
 ![](https://komarev.com/ghpvc/?username=Yorii-fu&style=for-the-badge)
 
 
