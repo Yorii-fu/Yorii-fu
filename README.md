@@ -19,7 +19,8 @@
   <hr align="left" width="300" style="height: 1px; border: none; background-color: #30363d; margin: 10px 0 15px 0;">
 
  <p align= "justify">ⓘ &nbsp;&nbsp;I've got moderate astigmatism which means I reply slightly late to messages because i'm attempting to read it. Yes, i refuse using glasses when i'm home.
-  Do expect tons of typos because I type quickly.. haha. Care to sign my atabook and Strawpage along the way?</p>
+  Do expect tons of typos because I type quickly.. haha. 
+   ———— Care to sign my atabook and Strawpage along the way?</p>
   
 </div>
   <hr align="left" width="400" style="height: 1px; border: none; background-color: #30363d; margin: 10px 0 15px 0;">
