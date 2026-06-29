@@ -17,7 +17,7 @@
 </div>
   <hr align="left" width="400" style="height: 1px; border: none; background-color: #30363d; margin: 10px 0 15px 0;">
   
-<img width="600" height="180" align="right" src="https://github.com/user-attachments/assets/41197ed3-11e6-4795-9dca-92ed862a9b1b"/>
+<img width="500" height="150" align="right" src="https://github.com/user-attachments/assets/41197ed3-11e6-4795-9dca-92ed862a9b1b"/>
   <div>
   <p align="center">
     <a href="https://yoriirian.atabook.org/"><img src="https://img.shields.io/badge/新book-36C2CE?style=flat"></a>
