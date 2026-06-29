@@ -20,6 +20,7 @@
 
  <p align= "justify">ⓘ &nbsp;&nbsp;I've got moderate astigmatism which means I reply slightly late to messages because i'm attempting to read it. Yes, i refuse using glasses when i'm home.
   Do expect tons of typos because I type quickly.. haha. 
+  <div>
    ———— Care to sign my atabook and Strawpage along the way?</p>
   
 </div>
