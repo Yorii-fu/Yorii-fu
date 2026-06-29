@@ -5,6 +5,12 @@
  <div>
   <p align="center">✦</p>
    
+  <p align ="left">
+    
+  ![](https://komarev.com/ghpvc/?username=Yorii-fu&label=fans&color=648DB3)
+  
+  </p>   
+  
 <img src="https://github.com/user-attachments/assets/bf63ff49-7f9d-4bab-976f-1548f8e74161" align="left" width="400" style="margin-right: 30px;">
 <br><br>
 <div>
