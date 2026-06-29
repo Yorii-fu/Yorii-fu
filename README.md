@@ -3,7 +3,7 @@
 </p>
   <hr align="left" width="850" style="height: 1px; border: none; background-color: #30363d; margin: 10px 0 15px 0;">
  <div>
-  <p align="center">✦</p>
+  <p align="center">✦ $\color{#B2D8CE}T\color{#B2D8CE}i\color{#B2D8CE}l\color{#648DB3}l\color{#648DB3} \ \color{#648DB3}a\color{#5459AC}l\color{#522258}l \ \color{#8C3061}a\color{#8C3061}r\color{#8C3061}e \ \color{#8C3061}o\color{#C63C51}n\color{#C63C51}e.$ </p>
    
   <p align ="left">
     
