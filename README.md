@@ -18,7 +18,7 @@
   &nbsp;&nbsp;——<font color="#E3B341" size="7"><i>"ℜ𝔦𝔰𝔢 𝔞𝔫𝔡 𝔰𝔥𝔦𝔫𝔢, <ins>𝔭𝔯𝔢𝔠𝔦𝔬𝔲𝔰</ins>, 𝔦𝔱'𝔰 𝔶𝔬𝔲𝔯 <b>𝔏𝔲𝔠𝔨𝔶 𝔡𝔞𝔶!</b>"</i></font>
   <hr align="left" width="300" style="height: 1px; border: none; background-color: #30363d; margin: 10px 0 15px 0;">
 
- <p align= "justify">ⓘ &nbsp;&nbsp;i've got moderate astigmatism which means I reply slightly late to messages because i'm attempting to read it. Yes, i refuse using glasses when i'm home)
+ <p align= "justify">ⓘ &nbsp;&nbsp;I've got moderate astigmatism which means I reply slightly late to messages because i'm attempting to read it. Yes, i refuse using glasses when i'm home.
   Do expect tons of typos because I type quickly.. haha. Care to sign my atabook and Strawpage along the way?</p>
   
 </div>
