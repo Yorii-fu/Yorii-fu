@@ -32,7 +32,7 @@
     <a href="https://en.pronouns.page/@Yorii-fu"><img src="https://img.shields.io/badge/•ᴗ•_Pronouns-36C2CE?style=flat"></a>
   </p>
   </div>
-
+&nbsp;&nbsp;&nbsp;&nbsp;
 <div align="left">
   
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31cpwmjnrox4ndlfrgthtiviib24&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=3865cc&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
