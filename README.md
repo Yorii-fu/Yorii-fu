@@ -1,7 +1,7 @@
 <p align="center">
 <img width="1000" height="400" alt="Image" src=https://github.com/user-attachments/assets/7199fbba-5289-4ffa-b154-59bdefdd8e52>
 </p>
-  <hr align="left" width="1000" style="height: 1px; border: none; background-color: #30363d; margin: 10px 0 15px 0;">
+  <hr align="left" width="800" style="height: 1px; border: none; background-color: #30363d; margin: 10px 0 15px 0;">
  <div>
   <p align="center">✦</p>
    
