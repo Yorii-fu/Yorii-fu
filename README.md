@@ -14,7 +14,8 @@
 <img src="https://github.com/user-attachments/assets/bf63ff49-7f9d-4bab-976f-1548f8e74161" align="left" width="400" style="margin-right: 30px;">
 <br><br>
 <div>
-  <img width="30" height="23" alt="Image" src="https://github.com/user-attachments/assets/05e8b136-c510-45ea-8c01-6cc220090794" />&nbsp;&nbsp;——<font color="#E3B341" size="7"><i>"ℜ𝔦𝔰𝔢 𝔞𝔫𝔡 𝔰𝔥𝔦𝔫𝔢, <ins>𝔭𝔯𝔢𝔠𝔦𝔬𝔲𝔰</ins>, 𝔦𝔱'𝔰 𝔶𝔬𝔲𝔯 <b>𝔏𝔲𝔠𝔨𝔶 𝔡𝔞𝔶!</b>"</i></font>
+  <img width="30" height="23" alt="Image" src="https://github.com/user-attachments/assets/05e8b136-c510-45ea-8c01-6cc220090794" />
+  # &nbsp;&nbsp;——<font color="#E3B341" size="7"><i>"ℜ𝔦𝔰𝔢 𝔞𝔫𝔡 𝔰𝔥𝔦𝔫𝔢, <ins>𝔭𝔯𝔢𝔠𝔦𝔬𝔲𝔰</ins>, 𝔦𝔱'𝔰 𝔶𝔬𝔲𝔯 <b>𝔏𝔲𝔠𝔨𝔶 𝔡𝔞𝔶!</b>"</i></font>
   <hr align="left" width="300" style="height: 1px; border: none; background-color: #30363d; margin: 10px 0 15px 0;">
 
  <p align= "justify">ⓘ &nbsp;&nbsp;i've got moderate astigmatism which means I reply slightly late to messages because i'm attempting to read it. Yes, i refuse using glasses when i'm home)
