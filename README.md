@@ -3,9 +3,8 @@
   ![](https://komarev.com/ghpvc/?username=Yorii-fu&label=fans&color=648DB3)
   
   </p>
-  
 <div align="center">
-  <img width="600" height="1000" align="right" src="https://github.com/user-attachments/assets/62fbcba2-84a3-4687-864c-ea94c5ee9e3a"/>
+<img width="1000" height="600" alt="Image" src="https://github.com/user-attachments/assets/5c54ea43-4fcb-4520-8281-caab7b9c2664"/>
 </div>
 <br clear="all" />
   <div>
