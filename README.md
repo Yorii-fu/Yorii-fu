@@ -1,6 +1,6 @@
   <p align ="left">
     
-  ![](https://komarev.com/ghpvc/?username=Yorii-fu&label=fans&color=648DB3)
+  ![](https://komarev.com/ghpvc/?username=Yorii-fu&label=Silly_chud_fans&color=648DB3)
   
   </p>
 <div align="center">
